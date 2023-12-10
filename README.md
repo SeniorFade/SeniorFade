@@ -1,1 +1,3 @@
-Join discord.gg/sacrp
+Owner @ Meso Developement
+
+Vehicle Developer @ SACRP
